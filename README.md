@@ -1,16 +1,36 @@
-### Hi there 👋
+# GitHub Jannies BTFO
 
-<!--
-**hidden-r4d/hidden-r4d** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+## Hello feds, welcome to my GitHub account.
 
-Here are some ideas to get you started:
+Pronouns: acab/acabself
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Israeli nationalist
+
+Zionist
+
+anarcho-leninist-marxist-bidenist-individualist-egoist-nihilist-cyberstrasserist
+
+1488 years old
+
+### About me:
+
+I basically just make shitty python scripts and """improvements""" on RTB.
+
+Feel free to contact me on anything mentioned below.
+
+
+
+
+
+
+
+
+### [My website](https://isis.tk)
+
+### [My Telegram](https://t.me/eve_nigga_johnson)
+
+### [My Matrix Account](https://matrix.to/#/@hiddenr3d:isis.tk)
+
+### [My Twitter](https://twitter.com/shekelberg60000)
+
+### [My Reddit](mailto:lol_no)
