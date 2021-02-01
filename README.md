@@ -25,11 +25,9 @@ Feel free to contact me on anything mentioned below.
 
 
 
-### [My website](https://isis.tk)
+### [I got banned from freenom lololololol](https://isis.tk)
 
-### [My Telegram](https://t.me/eve_nigga_johnson)
-
-### [My Matrix Account](https://matrix.to/#/@hiddenr3d:isis.tk)
+### [My Telegram](https://t.me/Hidden_r3d)
 
 ### [My Twitter](https://twitter.com/shekelberg60000)
 
