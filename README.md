@@ -25,9 +25,7 @@ Feel free to contact me on anything mentioned below.
 
 
 
-### [I got banned from freenom lololololol](https://isis.tk)
-
-### [My Telegram](https://t.me/Hidden_r3d)
+### [I got banned from freenom lololololol](https://irontruth.tk)
 
 ### [My Twitter](https://twitter.com/shekelberg60000)
 
