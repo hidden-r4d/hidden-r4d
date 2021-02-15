@@ -25,8 +25,10 @@ Feel free to contact me on anything mentioned below.
 
 
 
-### [I got banned from freenom lololololol](https://irontruth.tk)
+### [My Website](https://irontruth.xyz)
 
 ### [My Twitter](https://twitter.com/shekelberg60000)
+
+### [My Matrix](https://matrix.to/#/@hidden-r3d:irontruth.xyz)
 
 ### [My Reddit](mailto:lol_no)
