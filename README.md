@@ -2,7 +2,7 @@
 
 ## Hello feds, welcome to my GitHub account.
 
-Pronouns: acab/acabself
+Pronouns: jew/jewself kike/kikeself
 
 Israeli nationalist
 
@@ -14,12 +14,7 @@ anarcho-leninist-marxist-bidenist-individualist-egoist-nihilist-cyberstrasserist
 
 ### About me:
 
-I basically just make shitty python scripts and """improvements""" on RTB.
-
-Feel free to contact me on anything mentioned below.
-
-
-
+poop is funny
 
 
 
